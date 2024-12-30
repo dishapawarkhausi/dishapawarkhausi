@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Disha Pawar</h1>
-<h3 align="center">AI/ML Enthusiast</h3>
+<h3 align="center">AI/ML Enthusiast from India</h3>
 
 - 🌱 I’m currently learning **Machine Learning**
 
