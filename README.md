@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **pawar.disha2603@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/scl/fi/fiw88lamgtqxnpndsfdkj/My_Resume-Google-Docs.pdf?rlkey=cas0wt9wxfa7ind14t4kgxda2&st=ezd0ddo5&dl=0](https://www.dropbox.com/scl/fi/fiw88lamgtqxnpndsfdkj/My_Resume-Google-Docs.pdf?rlkey=cas0wt9wxfa7ind14t4kgxda2&st=ezd0ddo5&dl=0)
+- 📄 Know about my experiences [Resume](https://www.dropbox.com/scl/fi/fiw88lamgtqxnpndsfdkj/My_Resume-Google-Docs.pdf?rlkey=cas0wt9wxfa7ind14t4kgxda2&st=ezd0ddo5&dl=0) 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
