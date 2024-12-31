@@ -5,6 +5,8 @@
 
 - 📫 How to reach me **pawar.disha2603@gmail.com**
 
+- 📄 Know about my experiences [https://www.dropbox.com/scl/fi/fiw88lamgtqxnpndsfdkj/My_Resume-Google-Docs.pdf?rlkey=cas0wt9wxfa7ind14t4kgxda2&st=ezd0ddo5&dl=0](https://www.dropbox.com/scl/fi/fiw88lamgtqxnpndsfdkj/My_Resume-Google-Docs.pdf?rlkey=cas0wt9wxfa7ind14t4kgxda2&st=ezd0ddo5&dl=0)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/dishapawarkhausi" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="dishapawarkhausi" height="30" width="40" /></a>
