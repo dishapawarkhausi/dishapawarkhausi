@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **dishapawar872013@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://www.dropbox.com/scl/fi/ip35gbgoeod7wlg0dlaks/My_Resume.pdf?rlkey=wkfkyt1rk0hxocdn57hi98mpn&st=m972tp4f&dl=0)
+- 📄 Know about my experiences [Resume]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
