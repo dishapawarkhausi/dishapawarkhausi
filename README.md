@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Disha</h1>
 <h3 align="center">AI/ML Enthusiast from India</h3>
 
-- 🌱 I’m currently learning **Machine Learning**
+- 🌱 I’m currently learning **Machine Learning and Data Science**
 
 - 📫 How to reach me **dishapawar872013@gmail.com**
 
